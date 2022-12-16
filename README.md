@@ -1,1 +1,2 @@
 # Adeyemi2022
+I am Adeyemi Thomas, a 23 year old neurology and iPS research tech. I've spent the past 5 years studying neuroscience, receiving a B.A. in Neuroscience from UChicago. My career goals were initially to earn a PhD. in Neurology, but now I'm shifting into FinTech and aiming to earn an MBA. I chose FinTech because it is such a fast-growing field with far greater returns on a shorter timeline than continuing the academic research path.
